@@ -1,5 +1,5 @@
 ‎ 
-Mortis / Ozwald . . 6Teen - Chronic IRL and Chronically Online ,,
+Mortis / Ozwald . . 6Teen - Warning: Strawpage has Shirtless Fursona .
 
  ![](https://files.catbox.moe/1zvvej.png) 
 <!--
