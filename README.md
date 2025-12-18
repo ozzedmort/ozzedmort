@@ -1,4 +1,4 @@
-![](https://files.catbox.moe/1zvvej.png_ 
+![](https://files.catbox.moe/1zvvej.png)
 <!--
 **ozzedmort/ozzedmort** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
